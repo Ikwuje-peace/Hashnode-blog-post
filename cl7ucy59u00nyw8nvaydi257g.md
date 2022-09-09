@@ -24,47 +24,44 @@ Meanwhile others have:
 🔹 And they travel a lot
 
 But here’s the thing 📝
-They all started off as beginners
+They all started off as beginners,
 They all have our stories
 
-Some may have had it easier
+Some may have had it easier,
 Some may have had it worse
 
-What has made these people successful
+What has made these people successful,
 Is their ability to stay the course 🧭
 
-Through the hardships
+Through the hardships,
 The struggles 🙍
 
 They got up everyday and kept at it
 Pounding the pavement 👟👟👟
 
 And now it’s your turn
-To do the same
-Get up everyday
-And pound the pavement
+to do the same,
+get up everyday
+and pound the pavement
 
 Run your race
-Slowly
-But steady 🐢🐢🐢
+slowly,
+but steadily 🐢🐢🐢
 
 Picking up tips along the way
-To up your game 🏈
+to up your game 🏈
 
-Keeping your focus on the finish line
+Keeping your focus on the finish line,
 Knowing that each step, each breath
-Takes you closer
-To becoming that person
-That you were meant to be ⭐️🌟💫
+takes you closer
+to becoming that person
+that you were meant to be ⭐️🌟💫
 
 Keep going, my friends, you have a lot to gain
 And frankly, I don’t want to see you defeated
 
 I believe in you! I’m here to support you 💙
 
-----Victoria Michaels--------
-
 Where there is no pain, There is also no gain
 
-I also needed this
 
