@@ -1,67 +1,31 @@
 ## The Unmotivated Developer
 
-It’s hard to feel motivated when you are running the race 🏃🏿‍♀️🏃🏃‍♂️
+It’s hard to feel motivated when you are running the race.
 
-All the others are on their 3rd or 4th mile
-Enjoying the views, smiling and laughing
+All the others are on their 3rd or 4th mile, enjoying the views, smiling and laughing, and you are still huffing and puffing,wondering if you’ll make it to the first mile marker.
 
-And you are still huffing and puffing
-Wondering if you’ll make it to the first mile marker
+Seems like everyone else has it figured out, and here you are….,you drive a beat-up car to work, you live paycheck to paycheck, you have a job you hate, and you feel burnt out.
 
-Seems like everyone else has it figured out
+Meanwhile others have; perfect LinkedIn posts, all the answers!, the job of their dreams, lots of money, and they travel a lot.
 
-And here you are….
-♦️You drive a beat-up car to work
-♦️You live paycheck to paycheck
-♦️You have a job you hate
-♦️ And you feel burnt out
+But here’s the thing, they all started off as beginners, they all have their stories.
 
-Meanwhile others have:
-🔹 Perfect LinkedIn posts
-🔹 All the answers!
-🔹 The job of their dreams
-🔹 Lots of Money
-🔹 And they travel a lot
+Some may have had it easier, some may have had it worse.
 
-But here’s the thing 📝
-They all started off as beginners,
-They all have our stories
+What has made these people successful is their ability to stay the course.
 
-Some may have had it easier,
-Some may have had it worse
+Through the hardships, the struggles, they got up everyday and kept at it, pounding the pavement.
 
-What has made these people successful,
-Is their ability to stay the course 🧭
+And now it’s your turn to do the same, get up everyday, and pound the pavement.
 
-Through the hardships,
-The struggles 🙍
+Run your race slowly, but steadily, picking up tips along the way to up your game.
 
-They got up everyday and kept at it
-Pounding the pavement 👟👟👟
+Keeping your focus on the finish line, knowing that each step, each breath takes you closer to becoming the person that you were meant to be.
 
-And now it’s your turn
-to do the same,
-get up everyday
-and pound the pavement
+Keep going my friends, you have a lot to gain, and frankly, I don’t want to see you defeated.
 
-Run your race
-slowly,
-but steadily 🐢🐢🐢
+I believe in you! I’m here to support you.
 
-Picking up tips along the way
-to up your game 🏈
-
-Keeping your focus on the finish line,
-Knowing that each step, each breath
-takes you closer
-to becoming that person
-that you were meant to be ⭐️🌟💫
-
-Keep going, my friends, you have a lot to gain
-And frankly, I don’t want to see you defeated
-
-I believe in you! I’m here to support you 💙
-
-Where there is no pain, There is also no gain
+Where there is no pain, There is also no gain.
 
 
